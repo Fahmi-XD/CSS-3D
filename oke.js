@@ -1,0 +1,1 @@
+Oke gas oke gas
